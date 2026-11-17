@@ -1,1 +1,1 @@
-# osaka_2612
+# osaka_privatesale
